@@ -1,4 +1,4 @@
-### There is a long way to go 🚶‍♂️
+### Life is like a journey, and I am also a pedestrian 🚶‍♂️
 
 <!--
 **codevword/codevword** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
